@@ -1,0 +1,1 @@
+![1](Flyer-2019_web_op.svg)
